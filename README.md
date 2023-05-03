@@ -1,5 +1,6 @@
 # Twitter_heinz
 Henok kifle
 ETS0537/11
-Sec B
-Cloning Twitter Project
+henock0kifle@gmail.com
+heinz0Jb
+
